@@ -1,1 +1,1 @@
-Images For Content Locker
+Images of social content locker
